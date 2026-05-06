@@ -13,9 +13,9 @@
 <p align="center">history, swtd, mouthwashing, iron lung, & puppetry.</p>
 <p align="center">𝗕𝗬𝗜</p>
 <p align="center">chronically online but unaware of "mainstream" internet culture, lore, etc.</p>
-    <p align="center">i get overstimulated easily so please take that into consideration.</p>
-    <p align="center">i am critical of my interests and the media i consume. occasionally -</p>
-    <p align="center">- i use slurs i can reclaim along with vulgar humor and language.</p>
+    <p align="center">i can get overstimulated easily so please take that into consideration when int.</p>
+    <p align="center">i am critical of my interests and media i consume. i try my best to stay informed.</p>
+    <p align="center">occasionally, i will use reclaimable slurs along with vulgar humor and language.</p>
 <p align="center">𝗗𝗡𝗜</p>
 <p align="center"><a href="https://dni-criteria.carrd.co/"> 𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪</a> . fetishize LGBTQ+ relationships. sexualize religion or mythos. rpf.</p>
     <p align="center">minors. TCC & inspired media. zoophiles. irls. endo systems. pro/dark/com ship.</p>
