@@ -12,7 +12,7 @@
 <p align="center">urbex, thrifting, greek mythos, the medical field, adult swim,</p>
 <p align="center">history, swtd, mouthwashing, iron lung, & puppetry.</p>
 <p align="center">𝗕𝗬𝗜</p>
-<p align="center">i'm not chronically online and am unaware of a lot of "mainstream" internet culture, lore, etc.</p>
+<p align="center">not chronically online and unaware of "mainstream" internet culture, lore, etc.</p>
     <p align="center">i get overstimulated easily so please take that into consideration.</p>
     <p align="center">i am critical of my interests and the media i consume. occasionally,</p>
     <p align="center">i will use slurs i can reclaim along with vulgar humor and language.</p>
