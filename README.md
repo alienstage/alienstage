@@ -20,6 +20,6 @@
 <p align="center">𝗗𝗡𝗜</p>
 <p align="center"><a href="https://dni-criteria.carrd.co/"> 𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪</a> . fetishize LGBTQ+ relationships. sexualize religion or mythos. rpf.</p>
     <p align="center">minors. TCC & inspired media. zoophiles. irls. endo systems. pro/dark/com ship.</p>
-    <p align="center">(majority of this is from my experiences on pony town, which i rarely play nowadays.)</p>
+    <p align="center">(majority of this is from my experiences on pony town and instagram over the years.)</p>
 
 
