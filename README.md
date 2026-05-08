@@ -12,6 +12,7 @@
     <p align="center">𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦</p>
 <p align="center">urbex, thrifting, greek mythos, the medical field, adult swim,</p>
 <p align="center">history, swtd, mouthwashing, iron lung, & puppetry.</p>
+<p align="center"> ☆ the pitt (s3 come home), dtf st louis, sth, and star wars. ☆</p> 
 <p align="center">𝗕𝗬𝗜</p>
 <p align="center">chronically online but unaware of "mainstream" internet culture, lore, etc.</p>
     <p align="center">i can get overstimulated easily so please take that into consideration when int.</p>
