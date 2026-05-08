@@ -6,8 +6,8 @@
 
 
 
-<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">❝i'm not the jedi i should be.,</a>
-<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">i want more. and i know i shouldn't❞</a>
+<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">❝i'm not the jedi i should be.</a>
+<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">i want more, and i know i shouldn't❞</a>
   <sup><p align="center">✩ 𝗦𝗞𝗬𝗪𝗔𝗟𝗞𝗘𝗥𝗜𝗦𝗠 ✩</p><sup>
     <p align="center">𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦</p>
 <p align="center">urbex, thrifting, greek mythos, the medical field, adult swim,</p>
