@@ -15,7 +15,6 @@
 <p align="center"> ☆ the pitt (s3 come home), dtf st louis, sth, and star wars. ☆</p> 
 <p align="center">𝗕𝗬𝗜</p>
 <p align="center">chronically online but unaware of "mainstream" internet culture, lore, etc.</p>
-    <p align="center">i can get overstimulated easily so please take that into consideration when int.</p>
     <p align="center">i am critical of my interests and media i consume. i try my best to stay informed.</p>
     <p align="center">occasionally, i will use reclaimable slurs along with vulgar humor and language.</p>
 <p align="center">𝗗𝗡𝗜</p>
