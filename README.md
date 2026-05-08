@@ -1,12 +1,13 @@
 ![](https://komarev.com/ghpvc/?username=skywalkerism)
 
 
-<sup><p align="center"><img width="370" height="264" alt="3931a7e2c16ebcc05e67d322e288d35e" src="https://github.com/user-attachments/assets/220f5377-4d41-4b9c-8a6e-33e32b16bea4" />
+<sup><p align="center"><img width="500" height="278" alt="3491e2089b8e2fbd0ca922eee6157eee" src="https://github.com/user-attachments/assets/7b582add-85c2-466c-9c7f-c2df100c4975" />
 
 
 
-<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">❝they tell you things you want to hear. they say,</a>
-<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">honey, lover. what would i do without you?❞</a>
+
+<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">❝i'm not the jedi i should be.,</a>
+<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">i want more. and i know i shouldn't❞</a>
   <sup><p align="center">✩ 𝗦𝗞𝗬𝗪𝗔𝗟𝗞𝗘𝗥𝗜𝗦𝗠 ✩</p><sup>
     <p align="center">𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦</p>
 <p align="center">urbex, thrifting, greek mythos, the medical field, adult swim,</p>
