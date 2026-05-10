@@ -1,13 +1,14 @@
 ![](https://komarev.com/ghpvc/?username=skywalkerism)
 
 
-<sup><p align="center"><img width="175" height="175" alt="efa30acaf3666b23929c8321c1f08d4e" src="https://github.com/user-attachments/assets/07b30f57-ef0b-4240-9485-0d471b93493d" />
+<sup><p align="center"><img width="100" height="100" alt="efa30acaf3666b23929c8321c1f08d4e" src="https://github.com/user-attachments/assets/07b30f57-ef0b-4240-9485-0d471b93493d" />
 
 
 
 
-<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">❝i'm not the jedi i should be.</a>
-<p align="center"><a href="https://open.spotify.com/track/2U94Nj4SVS7TNsUiObLWPm?si=a67890adb4664e09)">i want more, and i know i shouldn't.❞</a>
+<p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">❝you drove me nearly out of my head.</a>
+  <p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">❝oh, while you never shed a tear, babe.</a>
+<p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">remember, i remember all you said.❞</a>
   <sup><p align="center">✩ 𝗦𝗞𝗬𝗪𝗔𝗟𝗞𝗘𝗥𝗜𝗦𝗠 ✩</p><sup>
     <p align="center">𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦</p>
 <p align="center">urbex, thrifting, greek mythos, the medical field, adult swim,</p>
