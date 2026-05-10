@@ -21,6 +21,7 @@
 <p align="center"><a href="https://dni-criteria.carrd.co/"> 𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪</a> . fetishize LGBTQ+ relationships. sexualize religion or mythos.</p>
     <p align="center">minors. true crime community & inspired media. zoophiles. pro/dark/com ship.</p>
     <p align="center">(majority of this is from my experiences on pony town and instagram over the years.)</p>
-     <p align="center">♡ if you condone, glorify, romanticize or apologize for any of the above - dni! thank you! ♡</p>
+     <p align="center">𝗶𝗳 𝘆𝗼𝘂 𝗰𝗼𝗻𝗱𝗼𝗻𝗲, 𝗴𝗹𝗼𝗿𝗶𝗳𝘆, 𝗿𝗼𝗺𝗮𝗻𝘁𝗶𝗰𝗶𝘇𝗲 𝗼𝗿 𝗮𝗽𝗼𝗹𝗼𝗴𝗶𝘇𝗲 𝗳𝗼𝗿 𝗮𝗻𝘆 𝗼𝗳 𝘁𝗵𝗲 𝗮𝗯𝗼𝘃𝗲 - 𝗱𝗻𝗶! 𝘁𝗵𝗮𝗻𝗸 𝘆𝗼𝘂!
+</p>
 
 
