@@ -7,7 +7,7 @@
 
 
 <p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">❝you drove me nearly out of my head.</a>
-  <p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">❝oh, while you never shed a tear, babe.</a>
+  <p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">oh, while you never shed a tear, babe.</a>
 <p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">remember, i remember all you said.❞</a>
   <sup><p align="center">✩ 𝗦𝗞𝗬𝗪𝗔𝗟𝗞𝗘𝗥𝗜𝗦𝗠 ✩</p><sup>
     <p align="center">𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦</p>
