@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=skywalkerism)
 
 
-<sup><p align="center"><img width="300" height="178" alt="3491e2089b8e2fbd0ca922eee6157eee" src="https://github.com/user-attachments/assets/7b582add-85c2-466c-9c7f-c2df100c4975" />
+<sup><p align="center"><img width="300" height="178" alt="efa30acaf3666b23929c8321c1f08d4e" src="https://github.com/user-attachments/assets/07b30f57-ef0b-4240-9485-0d471b93493d" />
 
 
 
