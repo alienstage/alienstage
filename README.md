@@ -24,6 +24,7 @@
     <p align="center">(majority of this is from my experiences on pony town and instagram over the years.)</p>
      <p align="center">𝗮𝗹𝘀𝗼 𝗶𝗳 𝘆𝗼𝘂 𝗰𝗼𝗻𝗱𝗼𝗻𝗲, 𝗴𝗹𝗼𝗿𝗶𝗳𝘆, 𝗿𝗼𝗺𝗮𝗻𝘁𝗶𝗰𝗶𝘇𝗲 𝗼𝗿 𝗮𝗽𝗼𝗹𝗼𝗴𝗶𝘇𝗲 𝗳𝗼𝗿 𝗮𝗻𝘆 𝗼𝗳 𝘁𝗵𝗲 𝗮𝗯𝗼𝘃𝗲 - 𝗱𝗻𝗶!</p>
      <p align="center">𝗡𝗢𝗧𝗘</p>
-  <p align="center">𝗶𝗳 𝗶 𝗰𝘂𝘁 𝘆𝗼𝘂 𝗼𝗳𝗳, 𝗼𝗿 𝗵𝗮𝘃𝗲 𝘆𝗼𝘂 𝗵𝗶𝗱𝗱𝗲𝗻 - 𝗶 𝗱𝗼𝗻'𝘁 𝗼𝘄𝗲 𝘆𝗼𝘂 𝗮𝗻 𝗲𝘅𝗽𝗹𝗮𝗻𝗮𝘁𝗶𝗼𝗻. 𝗵𝗼𝗽𝗲 𝘁𝗵𝗮𝘁 𝗵𝗲𝗹𝗽𝘀!</p>
+    <p align="center">i curate my online experience and hide / mute freely.</p>
+  <p align="center">𝗶𝗳 𝗶 𝗵𝗮𝘃𝗲 𝘆𝗼𝘂 𝗵𝗶𝗱𝗱𝗲𝗻 𝗼𝗿 𝗺𝘂𝘁𝗲𝗱 - 𝗶 𝗱𝗼𝗻'𝘁 𝗼𝘄𝗲 𝘆𝗼𝘂 𝗮𝗻 𝗲𝘅𝗽𝗹𝗮𝗻𝗮𝘁𝗶𝗼𝗻!</p>
 
 
