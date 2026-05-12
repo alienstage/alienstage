@@ -1,30 +1,20 @@
-![](https://komarev.com/ghpvc/?username=skywalkerism)
+<sup><p align="center">@𝘀𝗸𝘆𝘄𝗮𝗹𝗸𝗲𝗿𝗶𝘀𝗺</p><sup>
+  <p align="center">26 . 𝘵𝘩𝘦𝘺/𝘵𝘩𝘦𝘮 . 𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥 . 𝘵𝘢𝘬𝘦𝘯</p>
+<p align="center">𝘸𝘩𝘪𝘮𝘴𝘪𝘤𝘢𝘭 𝘸𝘪𝘵𝘩 𝘢 𝘷𝘪𝘵𝘢𝘮𝘪𝘯 𝘋 𝘥𝘦𝘧𝘪𝘤𝘪𝘦𝘯𝘤𝘺.</p>
+
+<img width="1120" height="120" alt="tumblr_4b7b9ab7b70751f4657c25ae4efae2a5_245b9de2_2048" src="https://github.com/user-attachments/assets/e36261c1-fa01-4721-8861-6f9d96e85a55" />
 
 
-<sup><p align="center"><img width="100" height="100" alt="efa30acaf3666b23929c8321c1f08d4e" src="https://github.com/user-attachments/assets/07b30f57-ef0b-4240-9485-0d471b93493d" />
-
-
-
-
-<p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">❝you drove me nearly out of my head.</a>
-  <p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">oh, while you never shed a tear, babe.</a>
-<p align="center"><a href="https://open.spotify.com/track/5i04Jy87RLxoZszJqY3QAN?si=38a6a3dc805f49c1)">remember, i remember all that you said.❞</a>
-  <sup><p align="center">✩ 𝗦𝗞𝗬𝗪𝗔𝗟𝗞𝗘𝗥𝗜𝗦𝗠 ✩</p><sup>
-    <p align="center">𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦</p>
-<p align="center">urbex, thrifting, greek mythos, the medical field, adult swim,</p>
-<p align="center">history, swtd, mouthwashing, iron lung, & puppetry.</p>
-<p align="center"> ☆ the pitt (s3 come home), dtf st louis, sth, and star wars. ☆</p> 
-<p align="center">𝗕𝗬𝗜</p>
+<p align="center">𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁.</p>
 <p align="center">chronically online but unaware of "mainstream" internet culture, lore, etc.</p>
     <p align="center">i am critical of my interests and media i consume. i try my best to stay informed.</p>
     <p align="center">occasionally, i will use reclaimable slurs along with vulgar humor and language.</p>
-<p align="center">𝗗𝗡𝗜</p>
-<p align="center"><a href="https://dni-criteria.carrd.co/"> 𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪</a> . fetishize LGBTQ+ relationships. sexualize religion or mythos.</p>
+<p align="center">𝙙𝙤 𝙣𝙤𝙩 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩.</p>
+<p align="center"><a href="https://dni-criteria.carrd.co/"> 𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪</a> . fetishize lgbtq+ relationships. sexualize religion or mythos.</p>
     <p align="center">minors. true crime community & inspired media. zoophiles. pro/dark/com ship.</p>
-    <p align="center">(majority of this is from my experiences on pony town and instagram over the years.)</p>
-     <p align="center">𝗮𝗹𝘀𝗼 𝗶𝗳 𝘆𝗼𝘂 𝗰𝗼𝗻𝗱𝗼𝗻𝗲, 𝗴𝗹𝗼𝗿𝗶𝗳𝘆, 𝗿𝗼𝗺𝗮𝗻𝘁𝗶𝗰𝗶𝘇𝗲 𝗼𝗿 𝗮𝗽𝗼𝗹𝗼𝗴𝗶𝘇𝗲 𝗳𝗼𝗿 𝗮𝗻𝘆 𝗼𝗳 𝘁𝗵𝗲 𝗮𝗯𝗼𝘃𝗲 - 𝗱𝗻𝗶!</p>
-     <p align="center">𝗡𝗢𝗧𝗘</p>
+     <p align="center">𝗶𝗳 𝘆𝗼𝘂 𝗰𝗼𝗻𝗱𝗼𝗻𝗲, 𝗴𝗹𝗼𝗿𝗶𝗳𝘆, 𝗿𝗼𝗺𝗮𝗻𝘁𝗶𝗰𝗶𝘇𝗲 𝗼𝗿 𝗮𝗽𝗼𝗹𝗼𝗴𝗶𝘇𝗲 𝗳𝗼𝗿 𝗮𝗻𝘆 𝗼𝗳 𝘁𝗵𝗲 𝗮𝗯𝗼𝘃𝗲. 𝗱𝗻𝗶.</p>
+     <p align="center">𝙗𝙮 𝙩𝙝𝙚 𝙬𝙖𝙮.</p>
     <p align="center">i curate my online experience and hide / mute freely.</p>
   <p align="center">𝗶𝗳 𝗶 𝗵𝗮𝘃𝗲 𝘆𝗼𝘂 𝗵𝗶𝗱𝗱𝗲𝗻 𝗼𝗿 𝗺𝘂𝘁𝗲𝗱 - 𝗶 𝗱𝗼𝗻'𝘁 𝗼𝘄𝗲 𝘆𝗼𝘂 𝗮𝗻 𝗲𝘅𝗽𝗹𝗮𝗻𝗮𝘁𝗶𝗼𝗻!</p>
 
-
+![](https://komarev.com/ghpvc/?username=skywalkerism)
