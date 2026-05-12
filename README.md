@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=skywalkerism)
+
 <sup><p align="center">@𝘀𝗸𝘆𝘄𝗮𝗹𝗸𝗲𝗿𝗶𝘀𝗺</p><sup>
   <p align="center">26 . 𝘵𝘩𝘦𝘺/𝘵𝘩𝘦𝘮 . 𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥 . 𝘵𝘢𝘬𝘦𝘯</p>
 <p align="center">𝘸𝘩𝘪𝘮𝘴𝘪𝘤𝘢𝘭 𝘸𝘪𝘵𝘩 𝘢 𝘷𝘪𝘵𝘢𝘮𝘪𝘯 𝘋 𝘥𝘦𝘧𝘪𝘤𝘪𝘦𝘯𝘤𝘺.</p>
@@ -16,5 +18,3 @@
      <p align="center">𝙗𝙤𝙣𝙪𝙨 𝙞𝙣𝙛𝙤𝙧𝙢𝙖𝙩𝙞𝙤𝙣.</p>
     <p align="center">i curate my online experience and hide / mute freely.</p>
   <p align="center">𝗶𝗳 𝗶 𝗵𝗮𝘃𝗲 𝘆𝗼𝘂 𝗵𝗶𝗱𝗱𝗲𝗻 𝗼𝗿 𝗺𝘂𝘁𝗲𝗱 - 𝗶 𝗱𝗼𝗻'𝘁 𝗼𝘄𝗲 𝘆𝗼𝘂 𝗮𝗻 𝗲𝘅𝗽𝗹𝗮𝗻𝗮𝘁𝗶𝗼𝗻!</p>
-
-![](https://komarev.com/ghpvc/?username=skywalkerism)
