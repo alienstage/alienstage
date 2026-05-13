@@ -1,5 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=skywalkerism)
 
+
 <sup><p align="center">@𝘀𝗸𝘆𝘄𝗮𝗹𝗸𝗲𝗿𝗶𝘀𝗺</p><sup>
   <p align="center">26 . 𝘵𝘩𝘦𝘺/𝘵𝘩𝘦𝘮 . 𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥 . 𝘵𝘢𝘬𝘦𝘯</p>
 <p align="center">𝘸𝘩𝘪𝘮𝘴𝘪𝘤𝘢𝘭 𝘸𝘪𝘵𝘩 𝘢 𝘷𝘪𝘵𝘢𝘮𝘪𝘯 𝘋 𝘥𝘦𝘧𝘪𝘤𝘪𝘦𝘯𝘤𝘺.</p>
@@ -7,7 +8,7 @@
 <img width="1120" height="120" alt="tumblr_4b7b9ab7b70751f4657c25ae4efae2a5_245b9de2_2048" src="https://github.com/user-attachments/assets/e36261c1-fa01-4721-8861-6f9d96e85a55" />
 
 
-<p align="center">𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁.</p>
+<p align="center">𝙗𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩.</p>
 <p align="center">chronically online but unaware of "mainstream" internet culture, lore, etc.</p>
     <p align="center">i am critical of my interests and media i consume. i try my best to stay informed.</p>
     <p align="center">occasionally, i will use reclaimable slurs along with vulgar humor and language.</p>
@@ -18,3 +19,5 @@
      <p align="center">𝙗𝙤𝙣𝙪𝙨 𝙞𝙣𝙛𝙤𝙧𝙢𝙖𝙩𝙞𝙤𝙣.</p>
     <p align="center">i curate my online experience and hide / mute freely.</p>
   <p align="center">𝗶𝗳 𝗶 𝗵𝗮𝘃𝗲 𝘆𝗼𝘂 𝗵𝗶𝗱𝗱𝗲𝗻 𝗼𝗿 𝗺𝘂𝘁𝗲𝗱 - 𝗶 𝗱𝗼𝗻'𝘁 𝗼𝘄𝗲 𝘆𝗼𝘂 𝗮𝗻 𝗲𝘅𝗽𝗹𝗮𝗻𝗮𝘁𝗶𝗼𝗻!</p>
+
+  <p align="center"><img width="300" height="170" alt="download (7)" src="https://github.com/user-attachments/assets/098b2775-6187-4b58-a1e8-2e38cedc793b" />
