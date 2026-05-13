@@ -1,13 +1,11 @@
-<img width="1281" height="820" alt="68747470733a2f2f692e696d6775722e636f6d2f6e6c7758326a332e706e67" src="https://github.com/user-attachments/assets/2063c980-df8c-436a-8079-e1f707f47baa" />
-
 ![](https://komarev.com/ghpvc/?username=skywalkerism)
+
 
 
 <sup><p align="center">@𝘀𝗸𝘆𝘄𝗮𝗹𝗸𝗲𝗿𝗶𝘀𝗺</p><sup>
   <p align="center">26 . 𝘵𝘩𝘦𝘺/𝘵𝘩𝘦𝘮 . 𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥 . 𝘵𝘢𝘬𝘦𝘯</p>
 <p align="center">𝘸𝘩𝘪𝘮𝘴𝘪𝘤𝘢𝘭 𝘸𝘪𝘵𝘩 𝘢 𝘷𝘪𝘵𝘢𝘮𝘪𝘯 𝘋 𝘥𝘦𝘧𝘪𝘤𝘪𝘦𝘯𝘤𝘺.</p>
 
-<img width="1120" height="120" alt="tumblr_4b7b9ab7b70751f4657c25ae4efae2a5_245b9de2_2048" src="https://github.com/user-attachments/assets/e36261c1-fa01-4721-8861-6f9d96e85a55" />
 
 <p align="center">𝙘𝙪𝙧𝙧𝙚𝙣𝙩 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨.</p>
      <p align="center"> the pitt (s3 come home), dtf st louis, sth, and star wars.</p>
