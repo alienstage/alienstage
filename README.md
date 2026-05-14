@@ -17,6 +17,7 @@
 <p align="center">𝙙𝙤 𝙣𝙤𝙩 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩.</p>
 <p align="center"><a href="https://dni-criteria.carrd.co/"> 𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪</a> . fetishize lgbtq+ relationships. sexualize religion or mythos.</p>
     <p align="center">minors. true crime community & inspired media. zoophiles. pro/dark/com ship.</p>
+    <p align="center">if you enjoy joking about unnerving topics such as diddy, epstein, and viruses.
      <p align="center">𝗶𝗳 𝘆𝗼𝘂 𝗰𝗼𝗻𝗱𝗼𝗻𝗲, 𝗴𝗹𝗼𝗿𝗶𝗳𝘆, 𝗿𝗼𝗺𝗮𝗻𝘁𝗶𝗰𝗶𝘇𝗲 𝗼𝗿 𝗮𝗽𝗼𝗹𝗼𝗴𝗶𝘇𝗲 𝗳𝗼𝗿 𝗮𝗻𝘆 𝗼𝗳 𝘁𝗵𝗲 𝗮𝗯𝗼𝘃𝗲. 𝗱𝗻𝗶.
  <p align="center">𝙗𝙤𝙣𝙪𝙨 𝙞𝙣𝙛𝙤𝙧𝙢𝙖𝙩𝙞𝙤𝙣.</p>
     <p align="center">i curate my online experience and hide / mute freely.</p>
