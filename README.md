@@ -21,7 +21,6 @@
  <p align="center">𝙗𝙤𝙣𝙪𝙨 𝙞𝙣𝙛𝙤𝙧𝙢𝙖𝙩𝙞𝙤𝙣.</p>
     <p align="center">i curate my online experience and hide / mute freely.</p>
   <p align="center">𝗶𝗳 𝗶 𝗵𝗮𝘃𝗲 𝘆𝗼𝘂 𝗵𝗶𝗱𝗱𝗲𝗻 𝗼𝗿 𝗺𝘂𝘁𝗲𝗱 - 𝗶 𝗱𝗼𝗻'𝘁 𝗼𝘄𝗲 𝘆𝗼𝘂 𝗮𝗻 𝗲𝘅𝗽𝗹𝗮𝗻𝗮𝘁𝗶𝗼𝗻!</p>
-  <p align="center">if you can’t respect me, why would i give you the honor of an explanation?</p>
 
 
 
