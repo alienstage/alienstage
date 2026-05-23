@@ -9,7 +9,7 @@
 
 
 <p align="center">𝙘𝙪𝙧𝙧𝙚𝙣𝙩 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨.</p>
-     <p align="center"> the pitt (s3 come home), dtf st louis, sth, and star wars.</p>
+     <p align="center"> the pitt (s3 come home), tadc (not you, gooseworx), and star wars.</p>
 <p align="center">𝙗𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩.</p>
 <p align="center">chronically online but unaware of "mainstream" internet culture, lore, etc.</p>
     <p align="center">i am critical of my interests and media i consume. i try my best to stay informed.</p>
@@ -24,9 +24,7 @@
 
 
 
-<p align="center"><img width="150" height="20" alt="0268-hardofhearing" src="https://github.com/user-attachments/assets/a5e54025-8c7e-4e5d-bded-10b554c0af71" />
-<img width="150" height="20" alt="0258-smileyshug" src="https://github.com/user-attachments/assets/5f6faa85-98ac-4b35-b974-1782401387fb" />
-<img width="150" height="20" alt="0253-rainbowheartclownballoons" src="https://github.com/user-attachments/assets/ad8743b0-498d-4875-91c5-110f5a0a3479" />
+
 <p align="center"><img width="150" height="20" alt="0136-clock" src="https://github.com/user-attachments/assets/e3c164df-42b4-4fc9-b23a-ce94d20962df" />
 <img width="150" height="20" alt="0079-nonbinary" src="https://github.com/user-attachments/assets/4ea35042-41e7-41f3-9391-6cdd68999c7b" />
 <img width="150" height="20" alt="0081-asexual" src="https://github.com/user-attachments/assets/87e85ea3-ffe7-42e1-889a-af7c1a84b225" />
