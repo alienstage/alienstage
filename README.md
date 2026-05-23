@@ -22,10 +22,3 @@
     <p align="center">i curate my online experience and hide / mute freely.</p>
   <p align="center">𝗶𝗳 𝗶 𝗵𝗮𝘃𝗲 𝘆𝗼𝘂 𝗵𝗶𝗱𝗱𝗲𝗻 𝗼𝗿 𝗺𝘂𝘁𝗲𝗱 - 𝗶 𝗱𝗼𝗻'𝘁 𝗼𝘄𝗲 𝘆𝗼𝘂 𝗮𝗻 𝗲𝘅𝗽𝗹𝗮𝗻𝗮𝘁𝗶𝗼𝗻!</p>
 
-
-
-
-<p align="center"><img width="150" height="20" alt="0136-clock" src="https://github.com/user-attachments/assets/e3c164df-42b4-4fc9-b23a-ce94d20962df" />
-<img width="150" height="20" alt="0079-nonbinary" src="https://github.com/user-attachments/assets/4ea35042-41e7-41f3-9391-6cdd68999c7b" />
-<img width="150" height="20" alt="0081-asexual" src="https://github.com/user-attachments/assets/87e85ea3-ffe7-42e1-889a-af7c1a84b225" />
-
