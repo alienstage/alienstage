@@ -9,7 +9,7 @@
 
 
 <p align="center">𝙘𝙪𝙧𝙧𝙚𝙣𝙩 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨.</p>
-     <p align="center"> the pitt (s3 come home), tadc (not you, gooseworx), and star wars.</p>
+     <p align="center"> the pitt (s3 come home), formula one, and star wars.</p>
 <p align="center">𝙗𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩.</p>
 <p align="center">chronically online but unaware of "mainstream" internet culture, lore, etc.</p>
     <p align="center">i am critical of my interests and media i consume. i try my best to stay informed.</p>
