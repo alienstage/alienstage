@@ -6,6 +6,7 @@
   <p align="center">26 . 𝘵𝘩𝘦𝘺/𝘵𝘩𝘦𝘮 . 𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥 . 𝘵𝘢𝘬𝘦𝘯</p>
 <p align="center">𝘸𝘩𝘪𝘮𝘴𝘪𝘤𝘢𝘭 𝘸𝘪𝘵𝘩 𝘢 𝘷𝘪𝘵𝘢𝘮𝘪𝘯 𝘋 𝘥𝘦𝘧𝘪𝘤𝘪𝘦𝘯𝘤𝘺.</p>
 <p align="center">𝘪 𝘤𝘶𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘯𝘭𝘪𝘯𝘦 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦. 𝘪 𝘩𝘪𝘥𝘦/𝘮𝘶𝘵𝘦 𝘧𝘳𝘦𝘦𝘭𝘺.</p>
+<p align="center">𝙬𝙝𝙞𝙨𝙥𝙚𝙧𝙨 𝙧𝙚𝙜𝙖𝙧𝙙𝙞𝙣𝙜 𝙖𝙨𝙨𝙞𝙨𝙩𝙖𝙣𝙘𝙚 𝙛𝙧𝙤𝙢 𝙢𝙮 𝙩𝙞𝙚𝙧 4 𝙬𝙞𝙡𝙡 𝙗𝙚 𝙞𝙜𝙣𝙤𝙧𝙚𝙙.</p>
 <p align="center"><img width="420" height="11" alt="greenarrowdivider" src="https://github.com/user-attachments/assets/0a84b029-2c5b-47bb-ab59-9b368398a0d6" />
 <p align="center"><p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
