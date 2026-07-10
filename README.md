@@ -11,7 +11,7 @@
 
 <p align="center"><img width="420" height="11" alt="greenarrowdivider" src="https://github.com/user-attachments/assets/0a84b029-2c5b-47bb-ab59-9b368398a0d6" />
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
+  <p align="center"<a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=21idzsirbykhxgnzmwqku72xi&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=009dff&bar_color_cover=true">
   </a>
 </p>
