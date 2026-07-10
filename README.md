@@ -3,10 +3,11 @@
 
 
 <sup><p align="center">@𝘀𝗸𝘆𝘄𝗮𝗹𝗸𝗲𝗿𝗶𝘀𝗺</p><sup>
-  <p align="center">26 . 𝘵𝘩𝘦𝘺/𝘵𝘩𝘦𝘮 . 𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥 . 𝘵𝘢𝘬𝘦𝘯</p>
-<p align="center">𝙢𝙮 𝙨𝙠𝙞𝙣𝙨 𝙬𝙞𝙡𝙡 𝙖𝙡𝙬𝙖𝙮𝙨 𝙝𝙖𝙫𝙚 𝙩𝙝𝙞𝙨 𝙜𝙞𝙩𝙝𝙪𝙗 𝙡𝙞𝙣𝙠𝙚𝙙.</p>
+<p align="center"><img width="200" height="100" alt="tumblr_acfd84f5d03c94e60e68abd1f59bd258_de632eb9_1280" src="https://github.com/user-attachments/assets/51e0dbe9-6fb2-49be-9818-cd23981a16ca" />
+<p align="center">˗ˏˋ ★ 𝘵𝘸𝘦𝘯𝘵𝘺6 , 𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥 ,  𝘵𝘪𝘦𝘳 4 𝘴𝘶𝘱𝘱𝘰𝘳𝘵𝘦𝘳 ★ ˎˊ˗</p>
 <p align="center">𝘪 𝘤𝘶𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘯𝘭𝘪𝘯𝘦 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦. 𝘪 𝘩𝘪𝘥𝘦/𝘮𝘶𝘵𝘦 𝘧𝘳𝘦𝘦𝘭𝘺.</p>
-<p align="center">𝙬𝙝𝙞𝙨𝙥𝙚𝙧𝙨 𝙧𝙚𝙜𝙖𝙧𝙙𝙞𝙣𝙜 𝙢𝙮 𝙩𝙞𝙚𝙧 4 𝙨𝙪𝙥𝙥𝙤𝙧𝙩𝙚𝙧 𝙬𝙞𝙡𝙡 𝙗𝙚 𝙞𝙜𝙣𝙤𝙧𝙚𝙙.</p>
+<p align="center">𝙢𝙮 𝙨𝙠𝙞𝙣𝙨 𝙬𝙞𝙡𝙡 𝙖𝙡𝙬𝙖𝙮𝙨 𝙝𝙖𝙫𝙚 𝙩𝙝𝙞𝙨 𝙜𝙞𝙩𝙝𝙪𝙗 𝙡𝙞𝙣𝙠𝙚𝙙.</p>
+
 <p align="center"><img width="420" height="11" alt="greenarrowdivider" src="https://github.com/user-attachments/assets/0a84b029-2c5b-47bb-ab59-9b368398a0d6" />
 <p align="center"><p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
