@@ -4,7 +4,7 @@
 
 <sup><p align="center">@𝘀𝗸𝘆𝘄𝗮𝗹𝗸𝗲𝗿𝗶𝘀𝗺</p><sup>
 <p align="center"><img width="300" height="200" alt="tumblr_acfd84f5d03c94e60e68abd1f59bd258_de632eb9_1280" src="https://github.com/user-attachments/assets/51e0dbe9-6fb2-49be-9818-cd23981a16ca" />
-<p align="center">˗ˏˋ ★ 𝘵𝘸𝘦𝘯𝘵𝘺6  ˑ  𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥  ˑ  <a href="https://sportscar.straw.page/)"> 𝘴𝘵𝘳𝘢𝘸 𝘱𝘢𝘨𝘦 </a> ★ ˎˊ˗
+<p align="center">˗ˏˋ ★ 𝘵𝘸𝘦𝘯𝘵𝘺6  ˑ  𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥  ˑ  <a href="https://sportscar.straw.page"> 𝘴𝘵𝘳𝘢𝘸 𝘱𝘢𝘨𝘦 </a> ★ ˎˊ˗
 <p align="center">𝘪 𝘤𝘶𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘯𝘭𝘪𝘯𝘦 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦. 𝘪 𝘩𝘪𝘥𝘦/𝘮𝘶𝘵𝘦 𝘧𝘳𝘦𝘦𝘭𝘺.</p>
 <p align="center">𝙢𝙮 𝙖𝙫𝙖𝙩𝙖𝙧𝙨 𝙬𝙞𝙡𝙡 𝙖𝙡𝙬𝙖𝙮𝙨 𝙝𝙖𝙫𝙚 𝙩𝙝𝙞𝙨 𝙜𝙞𝙩𝙝𝙪𝙗 𝙖𝙩𝙩𝙖𝙘𝙝𝙚𝙙.
 </p>
