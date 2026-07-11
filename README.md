@@ -7,6 +7,7 @@
 <p align="center">˗ˏˋ ★ 𝘵𝘸𝘦𝘯𝘵𝘺6  ˑ  𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘥  ˑ  <a href="https://sportscar.straw.page"> 𝘴𝘵𝘳𝘢𝘸 𝘱𝘢𝘨𝘦 </a> ★ ˎˊ˗
 <p align="center">𝘪 𝘤𝘶𝘳𝘢𝘵𝘦 𝘮𝘺 𝘰𝘯𝘭𝘪𝘯𝘦 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦. 𝘪 𝘩𝘪𝘥𝘦/𝘮𝘶𝘵𝘦 𝘧𝘳𝘦𝘦𝘭𝘺.</p>
 <p align="center">𝙢𝙮 𝙖𝙫𝙖𝙩𝙖𝙧𝙨 𝙬𝙞𝙡𝙡 𝙖𝙡𝙬𝙖𝙮𝙨 𝙝𝙖𝙫𝙚 𝙩𝙝𝙞𝙨 𝙜𝙞𝙩𝙝𝙪𝙗 𝙖𝙩𝙩𝙖𝙘𝙝𝙚𝙙.
+<p align="center">𝙖𝙙𝙫𝙚𝙧𝙩𝙞𝙨𝙞𝙣𝙜 𝙜𝙚𝙩𝙨 𝙖 24𝙝𝙧 𝙢𝙪𝙩𝙚. 𝙞 𝙖𝙢 𝙢𝙤𝙧𝙚 𝙡𝙞𝙠𝙚𝙡𝙮 𝙩𝙤 𝙢𝙪𝙩𝙚 𝙩𝙝𝙖𝙣 𝙝𝙞𝙙𝙚.</p>
 </p>
 
 <p align="center"><img width="420" height="11" alt="greenarrowdivider" src="https://github.com/user-attachments/assets/0a84b029-2c5b-47bb-ab59-9b368398a0d6" />
