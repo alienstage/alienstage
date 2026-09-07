@@ -16,3 +16,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=21idzsirbykhxgnzmwqku72xi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=9d9d9d&bar_color_cover=false">
   </a>
 </p>
+
+<p align="center">𝘢𝘭𝘭𝘦𝘨𝘢𝘵𝘪𝘰𝘯𝘴 𝘢𝘨𝘢𝘪𝘯𝘴𝘵 𝘵𝘩𝘦 𝘢𝘭𝘯𝘴𝘵 𝘤𝘳𝘦𝘢𝘵𝘰𝘳𝘴 𝘩𝘢𝘷𝘦 𝘣𝘦𝘦𝘯 𝘥𝘦𝘣𝘶𝘯𝘬𝘦𝘥. 𝘪 𝘸𝘰𝘯'𝘵 𝘣𝘦 𝘤𝘩𝘢𝘯𝘨𝘪𝘯𝘨 𝘮𝘺 𝘶𝘳𝘭 𝘶𝘯𝘭𝘦𝘴𝘴 𝘱𝘳𝘦𝘴𝘦𝘯𝘵𝘦𝘥 𝘸𝘪𝘵𝘩 𝘦𝘷𝘪𝘥𝘦𝘯𝘤𝘦. 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶.</p>
